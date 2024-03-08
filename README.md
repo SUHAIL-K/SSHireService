@@ -1,5 +1,5 @@
 
-# **Privacy Policy for YuCart**
+# **Privacy Policy for SS Hire Service**
 
 This privacy policy governs your use of the software application **SS Hire Service** ("Application") for mobile devices that was created by **Canopus Tech**.
 
